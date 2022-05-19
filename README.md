@@ -1,5 +1,1 @@
-### Hi there, I'm Gustavo 👋
-
-
-
-nghghfg
+### Hi there, I'm Gusto
